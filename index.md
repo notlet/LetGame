@@ -1,5 +1,3 @@
-# LetGame
-
 ### Yet another person from the internet.
 
 ## About me
