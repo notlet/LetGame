@@ -1,5 +1,3 @@
-### Yet another person from the internet.
-
 ## About me
 - I'm a 15 year old school student, who:
     - enjoys playing Hypixel Skyblock (700 hours playtime btw).
